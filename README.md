@@ -11,7 +11,7 @@
  
 
 ##  🌠```Bot Intro```🌠
-[![STAR-MD-V2]([https://i.ibb.co/x8RVYs5/20240302-120657.jpg](https://drive.google.com/file/d/1dv9XLDHfuOG3mEze8Yq2cufNXMPpFW-Q/preview))](https://wa.me/923108429373)
+[![Umrani_Wa_Bot](https://drive.google.com/file/d/1dv9XLDHfuOG3mEze8Yq2cufNXMPpFW-Q/preview)](https://wa.me/2347045035241)
 </p>
       <p align="center">
   <a href="https://wa.me//+2347045035241" target="_blank">
